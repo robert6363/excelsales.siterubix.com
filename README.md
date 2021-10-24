@@ -1,2 +1,2 @@
-# excelsales.siteryubix.com
-affiliiate marketing (creator)
+# excelsales.siterubix.com   (creator)
+affiliate marketing
